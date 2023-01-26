@@ -1,4 +1,4 @@
-_Evet ben ravgar gene ortalıkta dolaşan bi kaç çoluk çocuğun bot yaptığını sanıp ego kastığını gördüm ve bu repoyu paylaşmak zorunda hissettim_
+_Evet ben Papaz gene ortalıkta dolaşan bi kaç çoluk çocuğun bot yaptığını sanıp ego kastığını gördüm ve bu repoyu paylaşmak zorunda hissettim_
 ```
 Aşşağıda Listeleyeceğim Arkadasların Tek Ortak Yanı Aris Lesnar / Jaylen Bot Kurup Ortalıkta Gezinmek.
 
