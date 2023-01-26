@@ -1,3 +1,5 @@
+# BEN PAPAZ RAVGAR ALNMİŞTIR BETYLER SİZİN BEN DE DAHA GÜZEL ŞEYLERİZİNİZ VAR ATARIMAYIN HARBİ ADAM AKKLI DURUN
+
 # Calabriacım Ve Ozi / Owsla Botları
 setDisabled / Buton Yapıp Havalı Olduğunu Düşünen Bi Arkadaş.
 Hakkımdasındada Sürekli 20 Yıl Önce Yazıp İstanbul Semtlerini Sıralıyor Hawlisin Kalabriya
