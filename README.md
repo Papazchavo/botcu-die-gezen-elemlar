@@ -1,11 +1,3 @@
-_Evet ben Papaz gene ortalıkta dolaşan bi kaç çoluk çocuğun bot yaptığını sanıp ego kastığını gördüm ve bu repoyu paylaşmak zorunda hissettim_
-```
-Aşşağıda Listeleyeceğim Arkadasların Tek Ortak Yanı Aris Lesnar / Jaylen Bot Kurup Ortalıkta Gezinmek.
-
-Öncelikle Yok Ben Bunu Yaptım Bu Onda Yoktu Ben Vidaladım Ben Söktüm Ayaklarını Bi Bırakın Karşınızda Çocuk Yok.
-```
-# Gurup fln çekip boşuna tehdite başvurmayın ben dm guruplara bakmıyorum canım sıkıldı ve size sokuyum dedim repoyu açtım
-
 # Calabriacım Ve Ozi / Owsla Botları
 setDisabled / Buton Yapıp Havalı Olduğunu Düşünen Bi Arkadaş.
 Hakkımdasındada Sürekli 20 Yıl Önce Yazıp İstanbul Semtlerini Sıralıyor Hawlisin Kalabriya
