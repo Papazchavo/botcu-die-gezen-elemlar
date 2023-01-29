@@ -1,8 +1,14 @@
 # BEN PAPAZ RAVGAR ALNMİŞTIR BEYLER SİZİN BEN DE DAHA GÜZEL ŞEYLERİZİNİZ VAR ATARIMAYIN HARBİ ADAM AKKLI DURUN
 
-# rozzy#9140 cocuk var glitch bot yapıyor
- publara ekiplere bunu bana heberi geldi bu cocuk daha pm2 ne bilmiyor vds kulanmıyor botları glitch akktif tutuyor hatsiz sunucuma giriyor bide
-![Ekran görüntüsü 2023-01-07 223424](https://media.discordapp.net/attachments/1069214231532163172/1069317275074691152/image.png?width=476&height=135)
+# rozzy#9140 / glitch bot yapıyor
+setDisabled / Buton Yapıp Havalı Olduğunu Düşünen Bi Arkadaş.
+Hakkımdasındada Sürekli 20 Yıl Önce Yazıp İstanbul Semtlerini Sıralıyor Hawlisin Kalabriya
+![Ekran görüntüsü 2023-01-07 223424](https://user-images.githubusercontent.com/97904458/212295842-cf8a8887-332c-4612-8321-c371dcdfb0b9.png)
+![Ekran görüntüsü 2023-01-07 223507](https://user-images.githubusercontent.com/97904458/212295855-1ceb07e4-6b57-4020-97fa-1665d336902b.png)
+![Ekran görüntüsü 2023-01-07 223704](https://user-images.githubusercontent.com/97904458/212295863-092bb0ff-6827-4a74-b22a-b6414e1a6839.png)
+![Ekran görüntüsü 2023-01-08 230949](https://user-images.githubusercontent.com/97904458/212295874-905ed89a-2a74-4fc1-8e37-7c13f01f71f5.png)
+![Ekran görüntüsü 2023-01-07 224437](https://user-images.githubusercontent.com/97904458/212295878-0c9036df-ff1e-4696-84ac-82a255c7e682.png)
+![image](https://user-images.githubusercontent.com/97904458/212389228-9ec4b31d-5049-4cbd-90ae-e59f60a1cb84.png)
 
 
 # Calabriacım Ve Ozi / Owsla Botları
