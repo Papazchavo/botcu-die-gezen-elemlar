@@ -1,6 +1,7 @@
 # BEN PAPAZ RAVGAR ALNMİŞTIR BEYLER SİZİN BEN DE DAHA GÜZEL ŞEYLERİZİNİZ VAR ATARIMAYIN HARBİ ADAM AKKLI DURUN
 
-# rozzy#9140 cocuk var glitch bot yapıyor publara ekiplere bunu bana heberi geldi bu cocuk daha pm2 ne bilmiyor vds kulanmıyor botları glitch akktif tutuyor 
+# rozzy#9140 cocuk var glitch bot yapıyor
+ publara ekiplere bunu bana heberi geldi bu cocuk daha pm2 ne bilmiyor vds kulanmıyor botları glitch akktif tutuyor hatsiz sunucuma giriyor bide
 ![Ekran görüntüsü 2023-01-07 223424](https://media.discordapp.net/attachments/1069214231532163172/1069317275074691152/image.png?width=476&height=135)
 ![Ekran görüntüsü 2023-01-07 223424](https://media.discordapp.net/attachments/1069214231532163172/1069316836606365716/image.png?width=428&height=299)
 ![Ekran görüntüsü 2023-01-07 223507](https://media.discordapp.net/attachments/1069214231532163172/1069316953363198073/image.png?width=346&height=397)
