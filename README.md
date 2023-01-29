@@ -11,7 +11,6 @@
 ![Ekran görüntüsü 2023-01-07 224437](https://cdn.discordapp.com/attachments/1069214231532163172/1069317438463819786/image.png)
 ![Ekran görüntüsü 2023-01-08 230949](https://media.discordapp.net/attachments/1069214231532163172/1069317975041134683/image.png?width=432&height=334=214)
 ![Ekran görüntüsü 2023-01-07 224437](https://media.discordapp.net/attachments/1069214231532163172/1069317775887179796/image.png?width=437&height=212)
-![image](https://media.discordapp.net/attachments/1069214231532163172/1069318216494620763/image.png?width=489&height=98)
 
 
 # Calabriacım Ve Ozi / Owsla Botları
