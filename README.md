@@ -53,6 +53,10 @@ konuşmam gerek yok ssler konuşsun
 ![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069318495067721749/image.png?width=468&height=110)
 ![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069318989777477632/image.png?width=967&height=314)
 ![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069319493320454144/image.png?width=555&height=109)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069317975041134683/image.png?width=432&height=334)
 ![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069317775887179796/image.png?width=437&height=212)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069318216494620763/image.png?width=489&height=98)
+
+
 
 # Daha Ekleyeceğim Bi Kaç Karı Kılıklı Şahsiyetler Var Onlarıda Ekran Kayıtlı Videolarıyla Beraber Atarım Hadi Eyw 
