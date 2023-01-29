@@ -1,16 +1,5 @@
 # BEN PAPAZ RAVGAR ALNMİŞTIR BEYLER SİZİN BEN DE DAHA GÜZEL ŞEYLERİZİNİZ VAR ATARIMAYIN HARBİ ADAM AKKLI DURUN
 
-# rozzy#9140 / glitch bot yapıyor
-setDisabled / Buton Yapıp Havalı Olduğunu Düşünen Bi Arkadaş.
-Hakkımdasındada Sürekli 20 Yıl Önce Yazıp İstanbul Semtlerini Sıralıyor Hawlisin Kalabriya
-![Ekran görüntüsü 2023-01-07 223424](https://user-images.githubusercontent.com/97904458/212295842-cf8a8887-332c-4612-8321-c371dcdfb0b9.png)
-![Ekran görüntüsü 2023-01-07 223507](https://user-images.githubusercontent.com/97904458/212295855-1ceb07e4-6b57-4020-97fa-1665d336902b.png)
-![Ekran görüntüsü 2023-01-07 223704](https://user-images.githubusercontent.com/97904458/212295863-092bb0ff-6827-4a74-b22a-b6414e1a6839.png)
-![Ekran görüntüsü 2023-01-08 230949](https://user-images.githubusercontent.com/97904458/212295874-905ed89a-2a74-4fc1-8e37-7c13f01f71f5.png)
-![Ekran görüntüsü 2023-01-07 224437](https://user-images.githubusercontent.com/97904458/212295878-0c9036df-ff1e-4696-84ac-82a255c7e682.png)
-![image](https://user-images.githubusercontent.com/97904458/212389228-9ec4b31d-5049-4cbd-90ae-e59f60a1cb84.png)
-
-
 # Calabriacım Ve Ozi / Owsla Botları
 setDisabled / Buton Yapıp Havalı Olduğunu Düşünen Bi Arkadaş.
 Hakkımdasındada Sürekli 20 Yıl Önce Yazıp İstanbul Semtlerini Sıralıyor Hawlisin Kalabriya
@@ -54,5 +43,16 @@ buda botcuyum die gezer 40 sene aynı botu kullanıyormuş die duydum onada prim
 ![Ekran görüntüsü 2023-01-26 003259](https://user-images.githubusercontent.com/97904458/214697395-d36b97a9-c915-46ca-8a5c-782fb9d5c073.png)
 ![Ekran görüntüsü 2023-01-26 003613](https://user-images.githubusercontent.com/97904458/214697405-74361b04-7191-4df8-9a73-d677ed27b2b7.png)
 ![Ekran görüntüsü 2023-01-26 003723](https://user-images.githubusercontent.com/97904458/214697420-d2b81ae5-7d67-4858-8309-f4e367e8beb1.png)
+
+
+# rozzy#9140 / glitch bot yapıyor
+konuşmam gerek yok ssler konuşsun
+![Ekran görüntüsü 2023-01-26 003259](https://media.discordapp.net/attachments/1069214231532163172/1069316836606365716/image.png?width=428&height=299)
+![Ekran görüntüsü 2023-01-26 003613](https://media.discordapp.net/attachments/1069214231532163172/1069316953363198073/image.png?width=346&height=397)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069317048305459200/image.png?width=283&height=154)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069318495067721749/image.png?width=468&height=110)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069318989777477632/image.png?width=967&height=314)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069319493320454144/image.png?width=555&height=109)
+![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069317775887179796/image.png?width=437&height=212)
 
 # Daha Ekleyeceğim Bi Kaç Karı Kılıklı Şahsiyetler Var Onlarıda Ekran Kayıtlı Videolarıyla Beraber Atarım Hadi Eyw 
