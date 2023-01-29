@@ -44,9 +44,7 @@ buda botcuyum die gezer 40 sene aynı botu kullanıyormuş die duydum onada prim
 ![Ekran görüntüsü 2023-01-26 003613](https://user-images.githubusercontent.com/97904458/214697405-74361b04-7191-4df8-9a73-d677ed27b2b7.png)
 ![Ekran görüntüsü 2023-01-26 003723](https://user-images.githubusercontent.com/97904458/214697420-d2b81ae5-7d67-4858-8309-f4e367e8beb1.png)
 
-
 # rozzy#9140 / glitch bot yapıyor
-fotolar konuşsun.
 ![Ekran görüntüsü 2023-01-26 003259](https://media.discordapp.net/attachments/1069214231532163172/1069316836606365716/image.png?width=428&height=299)
 ![Ekran görüntüsü 2023-01-26 003613](https://media.discordapp.net/attachments/1069214231532163172/1069316953363198073/image.png?width=346&height=397)
 ![Ekran görüntüsü 2023-01-26 003723](https://media.discordapp.net/attachments/1069214231532163172/1069317048305459200/image.png?width=283&height=154)
